@@ -1,0 +1,4 @@
+- 10 Proven Ways To Earn $10,000 Per Month Online, Using What You Already Know: https://supersimpl.com/ways-to-earn-10000-per-month/
+- How to Make Money with Amazon Kindle Books: http://www.stevescottsite.com/make-money-amazon-kindle-books
+- How to Make $80,000 Per Month on the Apple App Store: https://medium.com/@johnnylin/how-to-make-80-000-per-month-on-the-apple-app-store-bdb943862e88
+- How one man went from working a soul-sucking 9-5 to earning $10,000 a month online: https://www.businessinsider.com/johnny-fd-earning-over-10000-a-month-online-2015-8/?IR=T
