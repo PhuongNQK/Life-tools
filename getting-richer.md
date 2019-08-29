@@ -5,3 +5,4 @@
 - How one man went from working a soul-sucking 9-5 to earning $10,000 a month online: https://www.businessinsider.com/johnny-fd-earning-over-10000-a-month-online-2015-8/?IR=T
 - 8 NGUYÊN TẮC CƠ BẢN ĐỂ LÀM GIÀU TỪ VIỆC ĐẦU TƯ: https://mio.vinacapital.com/kien-thuc-ve-dau-tu/tai-chinh-ca-nhan/8-nguyen-tac-co-ban-de-lam-giau-tu-viec-dau-tu.html
 - 16 Realistic Ways to Make One Million Dollars: https://www.listenmoneymatters.com/one-million-dollars/
+- [HOW TO SELF PUBLISH A BOOK ON AMAZON: 23 STEPS TO LAUNCHING A KINDLE EBOOK THAT MAKES OVER $100 A DAY](https://www.nichepursuits.com/self-publish-a-book-on-amazon/)
