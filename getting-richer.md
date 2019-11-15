@@ -6,3 +6,4 @@
 - 8 NGUYÊN TẮC CƠ BẢN ĐỂ LÀM GIÀU TỪ VIỆC ĐẦU TƯ: https://mio.vinacapital.com/kien-thuc-ve-dau-tu/tai-chinh-ca-nhan/8-nguyen-tac-co-ban-de-lam-giau-tu-viec-dau-tu.html
 - 16 Realistic Ways to Make One Million Dollars: https://www.listenmoneymatters.com/one-million-dollars/
 - [HOW TO SELF PUBLISH A BOOK ON AMAZON: 23 STEPS TO LAUNCHING A KINDLE EBOOK THAT MAKES OVER $100 A DAY](https://www.nichepursuits.com/self-publish-a-book-on-amazon/)
+- [How To Make $5,000 From a Single Blog Post](https://medium.com/better-marketing/how-to-make-5-000-from-a-single-blog-post-b1e6d69ef298)
