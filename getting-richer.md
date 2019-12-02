@@ -7,3 +7,4 @@
 - 16 Realistic Ways to Make One Million Dollars: https://www.listenmoneymatters.com/one-million-dollars/
 - [HOW TO SELF PUBLISH A BOOK ON AMAZON: 23 STEPS TO LAUNCHING A KINDLE EBOOK THAT MAKES OVER $100 A DAY](https://www.nichepursuits.com/self-publish-a-book-on-amazon/)
 - [How To Make $5,000 From a Single Blog Post](https://medium.com/better-marketing/how-to-make-5-000-from-a-single-blog-post-b1e6d69ef298)
+- [How My Friend Made $400K From Selling an Insanely Simple eBook](https://medium.com/better-marketing/how-my-friend-made-400k-from-selling-an-insanely-simple-ebook-3c40ad6a5bb8)
