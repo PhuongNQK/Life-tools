@@ -9,3 +9,9 @@
 - [How To Make $5,000 From a Single Blog Post](https://medium.com/better-marketing/how-to-make-5-000-from-a-single-blog-post-b1e6d69ef298)
 - [How My Friend Made $400K From Selling an Insanely Simple eBook](https://medium.com/better-marketing/how-my-friend-made-400k-from-selling-an-insanely-simple-ebook-3c40ad6a5bb8)
 - [How This 26-Year-Old Writer Generates $1.94 Million Per Year](https://entrepreneurshandbook.co/nat-eliason-writer-makes-1-94-million-dollars-c556e103edf0)
+
+# How to sell your e-books / digital content
+- [20 Websites to Sell and Publish Your eBooks](https://www.hongkiat.com/blog/websites-sell-publish-ebooks/)
+- [Where To Sell Your eBooks: 8 Online Platforms You Simply Must Try](https://www.magnet4blogging.net/where-to-sell-your-ebooks/)
+- [10 best places to sell ebooks online](https://www.easymoneytipx.com/10-best-place-to-sell-ebooks-online/)
+- [Bloggers: How To Price Your eBook - 5 Questions To Ask Yourself Before Pricing Up Your eBook](https://www.magnet4blogging.net/how-to-price-your-ebook/)
