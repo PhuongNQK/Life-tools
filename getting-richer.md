@@ -9,6 +9,7 @@
 - [How To Make $5,000 From a Single Blog Post](https://medium.com/better-marketing/how-to-make-5-000-from-a-single-blog-post-b1e6d69ef298)
 - [How My Friend Made $400K From Selling an Insanely Simple eBook](https://medium.com/better-marketing/how-my-friend-made-400k-from-selling-an-insanely-simple-ebook-3c40ad6a5bb8)
 - [How This 26-Year-Old Writer Generates $1.94 Million Per Year](https://entrepreneurshandbook.co/nat-eliason-writer-makes-1-94-million-dollars-c556e103edf0)
+- [Want To Make More Money? Here Are 5 Creative Ways To Increase Your Monthly Earnings](https://medium.com/@nicolascole77/want-to-make-more-money-here-are-5-creative-ways-to-increase-your-monthly-earnings-21fe4b38457d)
 
 # How to sell your e-books / digital content
 - [20 Websites to Sell and Publish Your eBooks](https://www.hongkiat.com/blog/websites-sell-publish-ebooks/)
